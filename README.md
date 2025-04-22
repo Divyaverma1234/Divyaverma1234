@@ -52,9 +52,9 @@ Whether it’s solving algorithmic problems, learning new languages, or building
 
 ## 📬 Contact
 
-📧 Mail: [mdshamiarzoo6@gmail.com](mailto:divyaverma9798@gmail.com)  
-📸 Instagram: [https://www.instagram.com/shami_1105/](https://www.instagram.com/_divyaverma_1105/)  
-📧 Linkedin: [www.linkedin.com/in/md-shami-arzoo-4799a6295/](https://www.linkedin.com/in/divyaverma123/) 
+📧 Mail: [divyaverma9798@gmail.com](mailto:divyaverma9798@gmail.com)  
+📸 Instagram: [https://www.instagram.com/_divyaverma_1105/](https://www.instagram.com/_divyaverma_1105/)  
+📧 Linkedin: [https://www.linkedin.com/in/divyaverma123/](https://www.linkedin.com/in/divyaverma123/) 
 
 ---
 
